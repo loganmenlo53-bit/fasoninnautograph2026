@@ -1,1 +1,12 @@
 # fasoninnautograph2026
+
+
+
+e2d167c8f2d1802a49e3379117cc7fe9e9e2f28ae86800f0005a48d48f314580  autograph2026.7z
+a767f72d2559b37422a8864c8c779b665f75a6f4f9fd830e285b67388d8c5ee4  autograph2026.rar
+1a096e26538b0003ddbb1acecbb24636edd338fcf54935958b451d6e58985ab6  autograph2026.zip
+
+
+
+
+Please do not delete it)
